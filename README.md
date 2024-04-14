@@ -1,16 +1,17 @@
-### Hi there 👋
+### Đại lý KUBET
 
-<!--
-**dailykubet/dailykubet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Khi trở thành đại lý KUBET, bạn sẽ nhận được nhiều ưu điểm hấp dẫn, nhận hoa hồng hậu hĩnh từ nhà cái theo doanh thu cược của người chơi
 
-Here are some ideas to get you started:
+- Địa chỉ: 17/1 Tô Ngọc Vân, Tam Phú, Thủ Đức, Thành phố Hồ Chí Minh
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0814714309
+
+- Website: https://kubet.coach/dai-ly-kubet
+
+https://slides.com/d/qrp4dh0/speaker/NcfrdsA
+
+https://gifyu.com/dailykubet
+
+https://www.metooo.io/u/dailykubet
+
+https://www.exchangle.com/dailykubet1
